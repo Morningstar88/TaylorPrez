@@ -4,19 +4,19 @@ FOR IMMEDIATE RELEASE
 
 Taylor Swift Assumes Presidency of the United States, Appoints Brian Shaw and Robert Oberst as Health Ministers
 
-Washington, D.C. — In an unprecedented turn of events, global superstar Taylor Swift has taken the oath of office as the 47th President of the United States. Swift's meteoric rise from chart-topping artist to Commander-in-Chief has captivated the nation, and her inauguration speech echoed themes of unity, empathy, and resilience.
+Washington, D.C. — In an unprecedented turn of events, Taylor Swift has taken the oath of office as the 47th President of the United States. Swift's rise from artist to Commander-in-Chief has captivated, and divided the nation. Her inauguration speech echoed themes of empathy and resilience.
 
-"We are all part of the same story," President Swift declared, standing on the steps of the Capitol. "Together, we'll write a new chapter—one where compassion guides our policies, where science leads our decisions, and where strength lies in lifting each other up."
+"We are all part of the same story," President Swift declared, standing on the steps of the Capitol. "Together, we'll write a new script—one where compassion guides our policies, where logic leads our decisions, and where our strength lies in lifting each other up."
 
-President Swift wasted no time assembling her cabinet, and today she announced the appointment of two unconventional choices for the critical role of Health Ministers: Brian Shaw and Robert Oberst. Known primarily for their prowess in strongman competitions, Shaw and Oberst bring a fresh perspective to public health.
+President Swift wasted no time assembling her cabinet, today she announced the appointment of two unconventional choices for the critical role of Health Ministers: Brian Shaw and Robert Oberst. Known primarily for their prowess in strongman competitions, Shaw and Oberst bring a fresh perspective to public health.
 
-Brian Shaw, a four-time World's Strongest Man champion, emphasized the importance of physical fitness and nutrition. "Health isn't just about medicine," Shaw stated. "It's about empowering individuals to lead active lives, lifting heavy burdens—both metaphorical and literal."
+Brian Shaw, a four-time World's Strongest Man champion, emphasized the importance of lifting and nutrition. "Health isn't just about medicine," Shaw stated. "It's individuals leading active lives, lifting heavy burdens—both metaphorical and literal."
 
-Robert Oberst, renowned for his colossal strength and charisma, echoed Shaw's sentiments. "We need to redefine health," Oberst said. "It's not just about avoiding illness; it's about embracing vitality. I propose mandatory deadlifts for all citizens—because nothing builds resilience like lifting heavy weights."
+Robert Oberst, renowned for his colossal strength and charisma, echoed Shaw's sentiments. "We need to redefine our approach to the body," Oberst said. "It's not just about avoiding illness; it's about embracing vitality. I propose deadlift competitions for every town in America—because nothing builds resilience like weights."
 
-Critics have raised eyebrows at the unconventional appointments, but President Swift remains steadfast. "Our health system needs a revolution," she asserted. "Why not enlist those who've already conquered mountains and pulled trucks? Strength, determination, and a dash of showmanship—that's the prescription for a healthier America."
+Critics have protested at the unconventional appointments, but President Swift remains steadfast. "Our health system needs a revolution," she asserted. "Why not enlist those who've already conquered mountains and pulled trucks? "
 
-As the nation adjusts to this alternative timeline, one thing is certain: Taylor Swift's presidency promises to be a symphony of unexpected notes, blending politics, pop culture, and powerlifting.
+As the nation adjusts to this alternative timeline, one thing is certain: Taylor Swift's presidency promises to be a song of new notes, blending politics, pop, and powerlifting.
 
 Contact:
 Press Secretary
